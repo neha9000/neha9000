@@ -3,8 +3,8 @@
 - 🌱 Love to learn new technologies and to explore new sets of areas.
 -  What's Special about me?
 -   Ability to quickly learn.
-- 📫 How to reach me nehaguptacom04@gmail.com
-- 😄 I'm Currently Studing in 2nd Year.
+- 📫 How to reach me nehaguptacom04@gmail.com or https://www.linkedin.com/in/neha-kumari-a5620124a/
+- 😄 I'm Currently Studing in 3nd Year.
   
 
 <!---
